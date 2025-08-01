@@ -10,4 +10,4 @@ We do not use cookies, analytics, or third-party trackers.
 
 No user data is sold, transferred, or shared.
 
-If you have any concerns or questions, contact us at [your email or support link].
+If you have any concerns or questions, contact us at [navneet@contensifyhq.com] 
